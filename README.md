@@ -1,2 +1,2 @@
-# good
-A working definition to buttress my definition of love
+# good *noun*
+that which produces wisdom and the fruit of the Spirit
