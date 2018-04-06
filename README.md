@@ -1,2 +1,2 @@
 # good *noun*
-that which produces wisdom and the fruit of the Spirit
+production of love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control, and wisdom
