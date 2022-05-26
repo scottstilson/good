@@ -1,2 +1,2 @@
 # good *noun*
-production of love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control, or wisdom
+begetting of love, joy, peace, wisdom, worthy trust, patience, kindness, goodness, faithfulness, gentleness, and self-control
